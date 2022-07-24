@@ -1,1 +1,1 @@
-# Geog12myfavoritedestinations-
+Map of my favorite destinations
